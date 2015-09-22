@@ -7,3 +7,6 @@ Mac Book Air
 Lenovo Yoga 13
 Raspbery Pi B2
 One else?
+
+
+Chris, Tucker, Ghennadi need one
