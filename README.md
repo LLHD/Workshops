@@ -10,3 +10,6 @@ One else?
 
 
 Chris, Tucker, Ghennadi need one
+
+
+Change. Competition starts at 5 with teams of 4.
