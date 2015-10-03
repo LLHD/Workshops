@@ -9,7 +9,7 @@ Raspbery Pi B2
 One else?
 
 
-Chris, Tucker, Ghennadi, Joey need one
+Chris (comes later -> No need), Tucker, Ghennadi, Joey need one
 
 
 Change. Competition starts at 5 with teams of 4.
